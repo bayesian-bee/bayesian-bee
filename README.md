@@ -1,1 +1,1 @@
-i hate computer
+i like computer
